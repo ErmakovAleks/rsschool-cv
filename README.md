@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ermakovaleks.github.io/rsschool-cv/cv
